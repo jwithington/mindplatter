@@ -14,7 +14,7 @@
 
 ## Time-in
 
-*	When we quietly reflect internally, focusing on sensations, images, feelings and thoughts, we help to better integrate the brain.*
+*When we quietly reflect internally, focusing on sensations, images, feelings and thoughts, we help to better integrate the brain.*
 
 ## Downtime
 
@@ -22,7 +22,7 @@
 
 ## Playtime
 
-*	When we allow ourselves to be spontaneous or creative, playfully enjoying novel experiences, we help make new connections in the brain.*
+*When we allow ourselves to be spontaneous or creative, playfully enjoying novel experiences, we help make new connections in the brain.*
 
 ## Connecting Time
 
